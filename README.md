@@ -3,6 +3,8 @@ What's new developers,👨‍💻
 It's me Angelo 👦
 
 
+
+
 • In my junior year in college 👨‍🎓
 
 • I'm interested to make AI development 🤖 
